@@ -1,0 +1,2 @@
+# Nikke-Story-Skip
+buh
